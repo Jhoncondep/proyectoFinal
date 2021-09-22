@@ -4,6 +4,7 @@
 - MAURICIO SIABATA
 
 - JOHN PULIDO
+> Soy de la ciudad de Bogotá, D.C, me gradué de psicólogo hace poco y trabajo e esa área. Mis intereses por este curso radican en que la tecnología siempre me ha gustado y me encanta resolver problemas. 
 
 - JOHN HURTADO
 
